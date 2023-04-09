@@ -1,1 +1,1 @@
-# 3.-Resim-Galerisi-
+# 3-Resim-Galerisi-
